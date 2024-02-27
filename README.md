@@ -7,3 +7,5 @@ Hope you enjoy how crap it is! (and maybe contribute to it to make it better!)
 [Twitter](https://twitter.com/ILikei386CPUs)
 
 [YouTube](https://www.youtube.com/channel/UCirFc2jLNd3uywibtQDC3OQ)
+
+[Buy Everything](stuff.html)
